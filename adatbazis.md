@@ -1,2 +1,2 @@
-nincs pénz
+
 
