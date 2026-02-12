@@ -1,7 +1,2 @@
-hi
-asdasd
-
-asd
-
-asd
+nincs pénz
 
